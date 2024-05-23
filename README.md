@@ -1,1 +1,1 @@
-# Le-fran-ais
+# Le français
